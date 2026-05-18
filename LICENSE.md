@@ -1,4 +1,4 @@
-#  
+#  Secure escape tsunami for brainrots scripts is the best escape tsunami for brainrots scripts with anti-ban and no clip. Safe, reliable, and optimized for maximum performance.
 
 
 
